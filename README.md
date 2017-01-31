@@ -1,1 +1,0 @@
-# squintyboi.github.io
